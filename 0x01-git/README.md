@@ -1,1 +1,1 @@
-Do hard things
+Do hard things and own your future
